@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **zakka727@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17i275RXBM3vH-LnGaqKjMfIUCQOvPKL4/view?usp=sharing](https://drive.google.com/file/d/17i275RXBM3vH-LnGaqKjMfIUCQOvPKL4/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cO28NIVyqgjdFZZu2sElckSGpl_5Zlmj/view?usp=drive_link) .
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
